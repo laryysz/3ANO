@@ -1,4 +1,5 @@
-# 3ANO**Supernatural** é uma série de televisão americana que mistura terror, drama e fantasia. A história segue os irmãos **Sam** e **Dean Winchester**, que caçam criaturas sobrenaturais como demônios, fantasmas, vampiros e outros seres paranormais. A série começa com os dois em busca do pai, que os criou para ser caçadores após a morte de sua mãe, assassinada por uma força sobrenatural.
+# 3ANO 
+**Supernatural** é uma série de televisão americana que mistura terror, drama e fantasia. A história segue os irmãos **Sam** e **Dean Winchester**, que caçam criaturas sobrenaturais como demônios, fantasmas, vampiros e outros seres paranormais. A série começa com os dois em busca do pai, que os criou para ser caçadores após a morte de sua mãe, assassinada por uma força sobrenatural.
 
 Ao longo das temporadas, eles enfrentam várias ameaças, incluindo anjos, demônios poderosos e até mesmo forças divinas como Deus e o próprio Apocalipse. Sam e Dean também lidam com questões familiares, lealdade e sacrifícios pessoais enquanto enfrentam o mal em suas diversas formas.
 
